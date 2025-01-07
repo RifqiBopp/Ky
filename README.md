@@ -1,2 +1,2 @@
-# Ky
-call me ky, its okay >)(< !!
+# Ki
+call me ki, its okay >)(< !!
